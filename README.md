@@ -1,4 +1,4 @@
-(NOT SCREENREADER FRIENDLY https://jxymiegithubsr for screen reader friendly)
+(NOT SCREENREADER FRIENDLY https://rentry.co/jxymiegithubsr for screen reader friendly)
 
 ☁️⋅♡𓂃 ABOUT ME . 🔮 !
 
