@@ -4,8 +4,7 @@
 
 ☽｡⋆ Heyo ! I'm Jay but you can call me anything tbh i dont really mind ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾.
 
-* all this is on the rentrys linked lmao i just wanted to be extra *
-* 
+all this is on the rentrys linked lmao i just wanted to be extra
 if you ever want to talk to me just boop or whisper and ill always be down to chat (unless i say otherwise)
 
 
