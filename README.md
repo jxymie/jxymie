@@ -5,7 +5,7 @@
 ☽｡⋆ Heyo ! I'm Jay but you can call me anything tbh i dont really mind ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾.
 
 all this is on the rentrys linked lmao i just wanted to be extra [i usually boop or crown skins i recognise !]
-if you ever want to talk to me just boop or whisper and ill always be down to chat (unless i say otherwise)
+if you ever want to talk to me just boop or whisper and ill always be down to chat (unless i say otherwise) .. ngl i sometimes hide behind friends for comfort if im hiding behind you and you dont want me to just tell me to stop and i will !
 
 
 ⋆⸜ 🎧✮ BYI
